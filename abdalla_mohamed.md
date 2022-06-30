@@ -1,0 +1,5 @@
+- 👋 Hi, I’m abdalla mohamed badwey
+- 👀 I’m interested in sales, business development
+- 🌱 I’m currently learning data analysis
+- 💞️ I’m looking to collaborate on sales analysis
+- 📫 How to reach me abd_alla259@hotmail.com
